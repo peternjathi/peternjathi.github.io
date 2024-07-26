@@ -1,1 +1,1 @@
-# Welcom to peternjathi.me website
+# Welcome to peternjathi.me website
